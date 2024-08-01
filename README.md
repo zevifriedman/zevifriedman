@@ -10,7 +10,8 @@ I love delving into the latest trends in technology and leveraging AI to solve r
 
 📫 How to reach me: Feel free to connect with me on email at zevi1706@gmail.com Let's make something amazing together!
 
-😄 Pronouns: He/Him
+😄 Pronouns:  😄😄😄😄
+
 ⚡ Fun fact: I can write code in five different programming languages and love integrating AI into creative art projects!
 
 <!---
