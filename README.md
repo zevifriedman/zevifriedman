@@ -25,3 +25,5 @@
  📫 Ways to get in touch:
  📧 Email: zevi1706@gmail.com
  Let's change the world, one amazing idea at a time!
+
+to see more projects 👉 https://github.com/Zevis-ai
